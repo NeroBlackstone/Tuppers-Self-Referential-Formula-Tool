@@ -1,0 +1,1 @@
+# Tuppers-Self-Referential-Formula
